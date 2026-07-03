@@ -1,4 +1,4 @@
-#  
+#  Experience break a brainrot egg like never before with stealth Script for break a brainrot egg, the #1 Script. Includes infinite resources and esp
 
 
 
